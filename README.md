@@ -12,3 +12,13 @@ Nicholas , minor ◡ he / him !
 Always @ hyv area . Always C + H !! 
 
 I'm justin bieber's #1 fan !
+
+# ◡ DNI ! 
+
+✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦
+
+Lsfm fans, suju fans, antis of my favs, antis of my comfs. 
+
+# ◡ INT !
+
+Justin bieber fans , conan gray fans , Kpop fans, Genshin, Etc
