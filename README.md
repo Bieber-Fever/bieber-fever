@@ -21,4 +21,6 @@ Lsfm fans, suju fans, antis of my favs, antis of my comfs.
 
 # ◡ INT !
 
+✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦
+
 Justin bieber fans , conan gray fans , Kpop fans, Genshin, Etc
