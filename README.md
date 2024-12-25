@@ -11,3 +11,5 @@ Always @ hyv area . Always C + H !!
 I'm justin bieber's #1 fan !
 
 ![](https://i.pinimg.com/736x/3c/fb/40/3cfb407bb5e5298c095d5b7abb382200.jpg)
+
+ ͡ ⠀DNI !! 
