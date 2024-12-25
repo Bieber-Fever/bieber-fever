@@ -13,3 +13,15 @@ I'm justin bieber's #1 fan !
 ![](https://i.pinimg.com/736x/3c/fb/40/3cfb407bb5e5298c095d5b7abb382200.jpg)
 
  ͡ ⠀DNI !! 
+
+ Justin bieber antis 
+
+basic dni 
+
+✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦
+
+ ͡ ⠀INT !! 
+
+  Justin bieber fans ( if u say ur his #1 fan no u arent. ) 
+
+  Genshin, omori, kpop fans, animanga fans
