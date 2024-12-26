@@ -1,4 +1,4 @@
-# " My mama don't like you and she likes everyone " 
+# " 𝐼 𝓉hought 𝓉hat 𝐼 𝓌as 𝒹reamin' 𝓌hen 𝓎ou 𝓈aid 𝓎ou 𝓁ove 𝓂e " 
 
 ![](https://i.pinimg.com/736x/2a/6e/8f/2a6e8f04481d530e5666478688b45a8b.jpg)
 
